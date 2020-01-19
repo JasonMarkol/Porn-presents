@@ -18,6 +18,8 @@ http://pornovideoshub.com/page/12/?s=presents+
 # LisaJordan
 http://myprincesslisa.com/  (zeison 115...60 )
 
+http://myprincesslisa.com/members/membershome.html
+
 https://iwantclips.com/store/694352/LisaJordan 
 
 https://twitter.com/LisaJordan01?lang=en
