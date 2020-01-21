@@ -35,3 +35,6 @@ https://ccbill.com/
 - Yahoo ID: BrattyPrincessLisa 
 
 - You know it's too much, but you can't help yourself, you want more!! Overdose bitch!!
+
+- https://femdomcc.net/tags/Bratty+Princess+Lisa/
+
