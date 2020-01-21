@@ -24,6 +24,8 @@ https://iwantclips.com/store/694352/LisaJordan
 
 https://twitter.com/LisaJordan01?lang=en
 
+- Clip4sale -  https://www.clips4sale.com/studio/34346/bratty-princess-lisa/ 
+
 brattyprincesslisa@gmail.com
 
 taijibagua606@gmail.com  tudou   阿里小号 辅助登陆
