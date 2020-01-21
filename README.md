@@ -26,6 +26,8 @@ https://twitter.com/LisaJordan01?lang=en
 
 - Clip4sale -  https://www.clips4sale.com/studio/34346/bratty-princess-lisa/ 
 
+- ManyVids - https://www.manyvids.com/Profile/1002520565/LisaJordan/Store/Videos/
+
 brattyprincesslisa@gmail.com
 
 taijibagua606@gmail.com  tudou   阿里小号 辅助登陆
